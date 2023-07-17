@@ -15,4 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I just want to say that right now I suffer from Covid, or rather long-term effects of it. So I'm not very responsive, sorry for that. But... I'll be back :)
+If you have any small or medium-sized commercial project opportunities, I am open to them!
+
+Contact: konradpapala@gmail.com
